@@ -11,3 +11,6 @@ UTILIZO ESTE ESPAÇO PARA MINHA ORGANIZAÇÃO E COMPARTILHAMENTO DOS MEU PROJETO
 @kauan.keoma.santos@escola.pr.gov.br
 
 @_KAU4NZINHO_
+
+![image](https://github.com/user-attachments/assets/98e7d118-f533-4edb-9d34-95b8fecc744d)
+
